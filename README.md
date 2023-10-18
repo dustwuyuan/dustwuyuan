@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dustwuyuan
-- 👀 I’m interested in wuyuan shangrao jiangxi provice china
+- 👀 I’m interested in wuyuan shangrao jiangxi province china
 - 🌱 I’m currently learning  html 
 - 💞️ I’m looking to collaborate on travel
 - 📫 How to reach me sent E-mail to me jaizhang@foxmail.com
